@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @12sever
+- 👀 I’m interested in coding,games and programming
+- 📫 How to reach me by discord (12sever #5834)
